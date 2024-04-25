@@ -14,6 +14,8 @@ This is the Central Intelligentsia of the Chinese Communist Party. 您的 Intern
 
 ![image](https://github.com/BenjaHidalgo/BenjaHidalgo/assets/163451574/b1ed2183-a673-4a14-85c2-713f61f76153)
 
-![Uploading image.png…]()
 
 ![Screenshot_20240425_142820_Instagram](https://github.com/BenjaHidalgo/BenjaHidalgo/assets/163451574/14f82958-4de7-4f91-a128-1383ee056b24)
+
+SI
+
