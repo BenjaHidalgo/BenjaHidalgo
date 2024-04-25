@@ -2,6 +2,7 @@
 !![FwHQZ5yWAAg69IW](https://github.com/BenjaHidalgo/BenjaHidalgo/assets/163451574/20e5fcb8-1695-4899-9cc5-f1b84ded782b)
 
 
+
 **BenjaHidalgo/BenjaHidalgo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 ESTO ES UNA PRUEBA NOSE QUE COLOCAR
@@ -14,7 +15,7 @@ This is the Central Intelligentsia of the Chinese Communist Party. 您的 Intern
 为党争光! Glory to the CCP!
 
 ![image](https://github.com/BenjaHidalgo/BenjaHidalgo/assets/163451574/b1ed2183-a673-4a14-85c2-713f61f76153)
-
+![oocd9e0zw2071-1](https://github.com/BenjaHidalgo/BenjaHidalgo/assets/163451574/93bd3de5-b1a6-49b6-a02d-ae6c34c0902f)
 
 ![Screenshot_20240425_142820_Instagram](https://github.com/BenjaHidalgo/BenjaHidalgo/assets/163451574/14f82958-4de7-4f91-a128-1383ee056b24)
 
